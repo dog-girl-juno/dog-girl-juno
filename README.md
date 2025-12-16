@@ -9,5 +9,7 @@ In the future you can expect more porjects to be posted here, but I am rarely al
 ### Where else can you find a JunoByte?
 New Grounds! I post on New Grounds more than I post here as of late. Plus you can find my art there! Feel free to check it out! There are a ton of other great artists on there too! I even have a playlist of games that are for sure worth barking for! Check them out and share their work!
 
-### A little serious now...
+## A little serious now...
 I hope you have a great time on my page, and enjoy my little corner of the internet! Feel free to message me if you have any questions!
+
+As an aditional side note, consider this intro my official challenge to "professionalism" you can be professional and still preserve your authentic personality. Hopefully this stance helps someone else out too. Lastly, be polite, be respectful. Simple as. Have a good day!
