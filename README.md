@@ -1,14 +1,13 @@
-I’m @dog-girl-juno! im a part time hooman and full time dog (dont tell the college admissions board)
-im a tripple major working on my undergrad degree in computer science. Im am majoring in
-  -computer networking and system administration with emphasis on data forensics
-  -data science
-  -software engineering
-I have goals of achieving a PhD in cyber security.
+## Hi! Im JunoByte!
+Welcome to my page! Take a look around! Who knows! You might have a barking good time!
 
-I probably wont post here very often, but when i do its to show off the dumb things i wasted my time on
+### What is a JunoByte? 
+Great question! Me! I am exactly 1 JunoByte! I am an artist, programmer, linux nerd, and (hopefully) your favorite husky! Here you will find my coding projects, dot files for my linux systems, and other projects. I am still learning, so I make no promises that my code is good. Its honestly more than likely the exact opposite. But feel free to play around with anything I post here!
 
-if you want to reach me, im usually active on mastodon;
-@dog_girl_juno@tech.lgbt 
+In the future you can expect more porjects to be posted here, but I am rarely all that active here, and lately I have been focusing more on my art. But more code projects are right around the proverbial corner! Assuming I dont get distracted with chasing a bird or something.. but I digress!
 
-I hope you enjoy what little work ill probably end up posting here!
-Arooooo~
+### Where else can you find a JunoByte?
+New Grounds! I post on New Grounds more than I post here as of late. Plus you can find my art there! Feel free to check it out! There are a ton of other great artists on there too! I even have a playlist of games that are for sure worth barking for! Check them out and share their work!
+
+### A little serious now...
+I hope you have a great time on my page, and enjoy my little corner of the internet! Feel free to message me if you have any questions!
