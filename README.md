@@ -7,7 +7,11 @@ Great question! Me! I am exactly 1 JunoByte! I am an artist, programmer, linux n
 In the future you can expect more porjects to be posted here, but I am rarely all that active here, and lately I have been focusing more on my art. But more code projects are right around the proverbial corner! Assuming I dont get distracted with chasing a bird or something.. but I digress!
 
 ### Where else can you find a JunoByte?
-New Grounds! I post on New Grounds more than I post here as of late. Plus you can find my art there! Feel free to check it out! There are a ton of other great artists on there too! I even have a playlist of games that are for sure worth barking for! Check them out and share their work!
+ - New Grounds: https://junobyte.newgrounds.com/
+I post on New Grounds more than I post here as of late. Plus you can find my art there! Feel free to check it out! There are a ton of other great artists on there too! I even have a playlist of games that are for sure worth barking for! Check them out and share their work!
+
+- My personal website:  https://candy-canine-juno.neocities.org/
+My personal geocities site made by me! It is out of date and requires some updating, which I plan to get around to at some point. Clearly that day is not today, because I have not removed this message. But you should still check it out! Theres some cool stuff there too! Granted, I am pretty biased on that front though. 
 
 ## A little serious now...
 I hope you have a great time on my page, and enjoy my little corner of the internet! Feel free to message me if you have any questions!
